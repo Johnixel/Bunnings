@@ -1,2 +1,4 @@
 # Bunnings
 Bunnings is the leading retailer of home improvement and outdoor living products in Australia and New Zealand and a major supplier to project builders, commercial tradespeople and the housing industry. Operating from a network of large warehouse stores, smaller format stores, trade centres and frame and truss sites, Bunnings caters for consumer and commercial customers. Revenue across the 2018 financial year totalled $12.5 billion. As at 30 June 2018 there were a total of 369 trading locations made up of 259 warehouses, 78 smaller format stores and 32 trade centres, along with three frame and truss centres operating across Australia and New Zealand. At 30 June 2018 we employed over 43,000 team members. 
+
+`UNDERSTAND THAT THIS DOCUMENT IS BY NO MEANS ASSOCIATED WITH BUNNINGS WAREHOUSE AUSTRALIA OR NEW ZEALAND`
